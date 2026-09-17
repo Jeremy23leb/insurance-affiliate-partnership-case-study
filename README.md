@@ -1,8 +1,11 @@
 Case Study: Building an Insurance Affiliate Partnership from Cold Outreach to 200+ Leads/Year
 
 Campaign Videos
+
 Video 1 — https://youtu.be/59LUx91tAkY?si=9z6IzUDfa1C24csa
+
 Video 2 — https://youtu.be/gybpEZkGN-o?si=W1rmswquRX5LP2In
+
 Video 3 — https://youtu.be/dRwzInLGfsg?si=-FyVY9fkoNUgL9QK
 
 
